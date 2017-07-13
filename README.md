@@ -1,0 +1,2 @@
+# lien-o-naztecaz
+QWERTYUIOPASDFGHJKLZXCVBNM
